@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @Crypto_B_News
+- 👋 Hi, I’m @baritasss
 - 👀 I’m interested in Cryptocurrency
-- 🛍️ I’m currently work in a souvenir shop and I am a happy husband and father of 4 children.
 - 💞️ I’m faithful
 - 📫 How to reach me:👉baritasss@gmail.com
 
